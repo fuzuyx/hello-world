@@ -8,5 +8,5 @@
 * i like being alone but not lonely so(please pet me)
 * u know me better than i
 
-## me in a nutshell :
+## Me in a nutshell :
 what am i doing with my life? -> in fact, what is live after all? where did we came from? how did we get here? does it really matter what iam doing? what is my life compared with the infiniteness of the universe? i think... -> hurray! download complete!
